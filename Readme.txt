@@ -1,1 +1,1 @@
-DEVASC SKILLS Exam
+DEVASC Skills Exam
